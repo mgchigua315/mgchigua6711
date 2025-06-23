@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://hj-678.pages.dev/">黑料网</a>
+点击访问：<a href="https://hj-678.pages.dev/">今日黑料</a>
 
 点击访问：<a href="https://hj-686.pages.dev/">海角社区</a>
 
@@ -19,7 +19,7 @@
 
 点击访问：<a href="https://hj-691.pages.dev/">分享永不</a>
 
-点击访问：<a href="https://hj-792.pages.dev/">黑料网</a>
+点击访问：<a href="https://hj-792.pages.dev/">黑料大事记</a>
 
 点击访问：<a href="https://hj-786.pages.dev/">91视频-海角</a>
 
@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://hj-712.pages.dev/">导航入口</a>
 
-点击访问：<a href="https://hj-715.pages.dev/">91视频</a>
+点击访问：<a href="https://hj-715.pages.dev/">黑料今日</a>
 
 主要内容：
 
@@ -59,4 +59,4 @@ Telegram频道传送门：汇集优质频道链接，涵盖黑料爆料、吃瓜
 
 《黑料大事记》专注整理娱乐圈与网络红人爆料事件，涵盖时间线、人物背景与舆论发展，帮助用户快速了解每起黑料的真相，全方位追踪热议焦点。
 
-[Canonical link](https://github.com/mgchigua315/mgchgua6216）
+[Canonical link](https://github.com/mgchigua315/mgchigua6711）
